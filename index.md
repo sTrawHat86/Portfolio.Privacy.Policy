@@ -1,6 +1,6 @@
 # Privacy Policy — Portfolio Privacy
 
-**Last updated: March 2026**
+**Last updated: May 2026**
 
 ## Overview
 
